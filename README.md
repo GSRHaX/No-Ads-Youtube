@@ -48,4 +48,3 @@ Follow these steps to install **No Ads YouTube**:
 
 Transform your YouTube experience today with seamless, ad-free viewing and listening—just like a premium subscription! 🎉🎵
 
-tungsten
